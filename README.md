@@ -1,6 +1,6 @@
 ## Hello, darling~! Welcome to my introduction <3
  Always comfortable for C+H, if you want to✨
- ‼ **I don't like green///apple** ‼ You can still cuddle and hug, but don't mention that ship. And if you want us to role-play as green///apple, I'll block you.
+ ‼️ **I don't like green///apple** ‼️ You can still cuddle and hug, but don't mention that ship. And if you want us to role-play as green///apple, I'll block you.
 <!--
 **yourbelove/yourbelove** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
